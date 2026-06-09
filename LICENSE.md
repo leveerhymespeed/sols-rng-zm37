@@ -1,4 +1,4 @@
-
+sol's rng rare Script offers the most advanced sol's rng Script, with instant win and auto-collect. Perfect for dominating any match.
 
 
 
